@@ -25,7 +25,7 @@ two mentioned above are NY classics for a reason. Most of these places
 of the day instead of at peak dinning hours.
 
 ### Sushi
-Sushi of Gari <http://www.yelp.com/biz/sushi-of-gari-new-york>
+[Sushi of Gari](http://www.yelp.com/biz/sushi-of-gari-new-york)
 
 Multiple locations also but would suggest only making the trip to the
 flagship on the Upper East Side. They take an experimental approach to the
@@ -35,25 +35,25 @@ execution will be great.
 
 
 ### Japanese
-Kajitsu <http://www.yelp.com/biz/kajitsu-new-york-3>
+[Kajitsu](http://www.yelp.com/biz/kajitsu-new-york-3)
 
 Vegan / vegetarian restaurant that feels at once high quality as well as
 ascetic and Buddhist. Authentic, clean, inspired -- very different
 experience. Last time I was there I was seated next to Ed Norton.
 
 
-Yakitori Totto <http://www.yelp.com/biz/yakitori-totto-new-york>
+[Yakitori Totto](http://www.yelp.com/biz/yakitori-totto-new-york)
 For Japanese yakitori (grilled food). Very high quality and recommend the
 eggplant dish.
 
-Takashi <http://www.yelp.com/biz/takashi-new-york>
+[Takashi](http://www.yelp.com/biz/takashi-new-york)
 
 For more grilled meats, this one is a Japanese Korean hybrid. It's heavy
 and smoky inside but worth it. Everything is super fresh and savory.
 
 
 ### New  / Other Asian
-Pok Pok NY <http://www.yelp.com/biz/pok-pok-ny-brooklyn-3> (Thai / New Thai)
+[Pok Pok NY](http://www.yelp.com/biz/pok-pok-ny-brooklyn-3) (Thai / New Thai)
 
 The restaurateur behind Pok Pok started in Portland and became famous with
 his Vietnamese fried chicken. He then opened up a small stand on the Lower
@@ -65,7 +65,7 @@ not easy to find in what is usually takeout territory. Highly recommend
 despite the recent Yelp reviews.
 
 
-SriPraPhai <http://www.yelp.com/biz/sripraphai-thai-restaurant-woodside>
+[SriPraPhai](http://www.yelp.com/biz/sripraphai-thai-restaurant-woodside)
  (Thai)
 
 Located in Queens, this one is also a trek to get here but it doesn't get
