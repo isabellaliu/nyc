@@ -138,7 +138,7 @@ Also has really solid pasta but overall great Italian / New American
 restaurant. Good service and relaxed but tasteful atmosphere.
 
 
-L'Artusi </>
+L'Artusi <http://www.yelp.com/biz/l-artusi-new-york>
 
 Pasta is also a focus at this restaurant. Very popular choice among New
 Yorkers. Morini and Il Buco are my personal favorites but this place is
