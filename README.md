@@ -450,7 +450,8 @@ Empire State Building (I also love this one)
 Statue of Liberty
 
 
-*OTHER AREAS*Coney Island, Rockaway Beach, Long Island City, Williamsburg
+*OTHER AREAS*
+Coney Island, Rockaway Beach, Long Island City, Williamsburg
 
 
 ## SHOPPING
