@@ -117,7 +117,7 @@ one for atmosphere.
 the more expensive ones on the back of the menu).
 
 
-## PASTA
+## Pasta
 [Osteria Morini](http://www.yelp.com/biz/osteria-morini-new-york)
 
 > Pasta is the highlight at this Michael White restaurant. You will know how
@@ -139,7 +139,10 @@ also very good. Olive oil cake to finish the meal here is nice. More
 bustling than the other two.
 
 
-## Pizza (Fancy)
+## Pizza
+
+### Fancy
+
 [Rubirosa](http://www.yelp.com/biz/rubirosa-new-york-2)
 
 > MUST GET THE VODKA PIZZA. Once you've had that, you're done. The pasta is
@@ -157,7 +160,8 @@ also ok but focus on the vodka pizza.
 in Brooklyn is also popular but to me it's just more hipster.
 
 
-## NY-Style Slice Pizza
+###  NY-Style Slice
+
 [Joe's](http://www.yelp.com/biz/joes-pizza-new-york-4)
 
 > Though Joe's is really good and famous, any corner pizza shop that is
@@ -168,7 +172,7 @@ took 2 years to try every pizza sold by the slice in NYC and then wrote a
 book and blog about it.
 
 
-## Other Pizza Institutions
+###  Other Pizza Institutions
 [Grimaldi's](http://www.grimaldis-pizza.com/home)
 
 > One of the most famous NY pizzerias. Original location is in Brooklyn under
@@ -255,53 +259,54 @@ prep school families.
 speakeasy PDT (Please Don't Tell), which I strongly recommend.
 
 
-Tuck Shop  <http://www.yelp.com/biz/tuck-shop-new-york>
+[Tuck Shop](http://www.yelp.com/biz/tuck-shop-new-york)
 
 > Australian meat pies that are surprisingly good quality and satisfying
 
 
-Xian Famous Foods <http://www.yelp.com/biz/xian-famous-foods-new-york-3>
+[Xian Famous Foods](http://www.yelp.com/biz/xian-famous-foods-new-york-3)
 
 > Multiple locations but this one is the easiest to get to. Chinese Muslim
 food. Tasty, cheap, authentic.
 
 
-Baohaus <http://www.yelp.com/biz/baohaus-new-york-2>
+[Baohaus](http://www.yelp.com/biz/baohaus-new-york-2)
 
 > The restaurateur is also the guy behind Fresh Off the Boat TV series, Eddie
 Huang. Taiwanese snacks and street food. Cheap and authentic.
 
 
-Chicken 'n' Rice Cart <http://www.yelp.com/biz/the-halal-guys-new-york-2>
+[Chicken 'n' Rice Cart](http://www.yelp.com/biz/the-halal-guys-new-york-2)
 
 > The go-to halal street meat food cart in Manhattan
 
-## JEWISH DELI / EASTERN EUROPEAN FARE
-Katz's Deli <http://www.yelp.com/biz/katzs-delicatessen-new-york>
+## Jewish Deli / Eastern European Fare
+
+[Katz's Deli](http://www.yelp.com/biz/katzs-delicatessen-new-york)
 
 > Where part of the movie When Harry Met Sally was filmed.  Offers Jewish
 deli food and is the most well-known Jewish deli in NYC.
 
 
-2nd Ave Deli <http://www.2ndavedeli.com/>
+[2nd Ave Deli](http://www.2ndavedeli.com/)
 
 > My personal favorite Jewish deli on Manhattan.
 
 
-Veselka <http://www.yelp.com/biz/veselka-new-york>
+[Veselka](http://www.yelp.com/biz/veselka-new-york)
 
 > Get the borscht and pierogis. Bonus points for being open 24/7 and a go-to
 cafe for NYU students.
 
 
-B&H Dairy <http://www.yelp.com/biz/b-and-h-dairy-new-york-2>
+[B&H Dairy](http://www.yelp.com/biz/b-and-h-dairy-new-york-2)
 
 > A real diner and old-timey local favorite. Very authentic and at home.
 Great soups (matzoh ball soup!), challah bread, pierogis. Cramped space but
 perfect in every way!
 
 
-Russ and Daughters <http://www.yelp.com/biz/russ-and-daughters-new-york>
+[Russ and Daughters](http://www.yelp.com/biz/russ-and-daughters-new-york)
 
 > Get your smoked salmon for your bagel here! I'm a bit out of date on where
 to get bagels. You could totally at Russ & Daughters. My friends used to
@@ -309,43 +314,43 @@ get them at Zabar's supermarkets. I have two favorites but they were just
 close to where I lived but don't remember their names.
 
 
-## DESSERT
-Levain <http://www.yelp.com/biz/levain-bakery-new-york>
+## Dessert
+[Levain](http://www.yelp.com/biz/levain-bakery-new-york)
 
 > Insanely huge gooey cookies on the UWS. Worth the visit!!
 
-Doughnut Plant <http://doughnutplant.com/>
+[Doughnut Plant](http://doughnutplant.com/)
 
 > Most well-known doughnut place in NYC. Has a lot of interesting bases and
 types.
 
 
-Dough <http://www.yelp.com/biz/dough-new-york-2>
+[Dough](http://www.yelp.com/biz/dough-new-york-2)
 
 > Another doughnut option but out in Brooklyn.
 
 
-Magnolia Bakery <http://www.magnoliacupcakes.com/home.php>
+[Magnolia Bakery](http://www.magnoliacupcakes.com/home.php)
 
 > Cupcakes and banana bread pudding. I recommend the banana bread pudding and
 either the vanilla-based or the chocolate-based cupcakes. Most famous
 cupcake shop in NYC.
 
 
-Four and Twenty Blackbirds
-<http://www.yelp.com/biz/four-and-twenty-blackbirds-brooklyn>
+[Four and Twenty Blackbirds](http://www.yelp.com/biz/four-and-twenty-blackbirds-brooklyn)
 
 > Because who wants cake when they can have pie!
 
 
 ## FRENCH PASTRIES
-Dominique Ansel <http://www.yelp.com/biz/dominique-ansel-bakery-new-york>
+
+[Dominique Ansel](http://www.yelp.com/biz/dominique-ansel-bakery-new-york)
 
 > The origin of the cronut. All pastries are incredible here, especially the
 DKA.
 
 
-Maison Kayser <http://maison-kayser-usa.com/>
+[Maison Kayser](http://maison-kayser-usa.com/)
 
 > Several locations, but really on point french breads and pastries. Also not
 bad for a low-key weekend breakfast/brunch.
@@ -420,8 +425,7 @@ Opera, Ballet, and Philharmonic and Julliard
 
 Flatiron
 
-> Check out Mario Bataly's new supermarket / restaurant space, Eataly (
-http://www.nytimes.com/2010/07/28/dining/28eataly.html), Ace Hotel, Nomad
+> Check out Mario Bataly's new supermarket / restaurant space, [Eataly](http://www.nytimes.com/2010/07/28/dining/28eataly.html), Ace Hotel, Nomad
 Hotel. Don't miss the Flatiron building that gives the district its name.
 
 
@@ -463,37 +467,35 @@ Brooklyn Flea Market (a MUST)
 ## NIGHTLIFE
 
 *Speakeasies*
-PDT (Please Don't Tell)
-<http://www.yelp.com/biz/please-dont-tell-new-york-2>
+
+[PDT (Please Don't Tell)](http://www.yelp.com/biz/please-dont-tell-new-york-2)
 
 > Recommended, go through a phone booth located in Crif Dogs to get to PDT
 
-Dear Irving <http://www.yelp.com/biz/dear-irving-new-york>
+[Dear Irving](http://www.yelp.com/biz/dear-irving-new-york)
 
-Campbell Apartment <http://www.yelp.com/biz/the-campbell-apartment-new-york>
+[Campbell Apartment](http://www.yelp.com/biz/the-campbell-apartment-new-york)
 
 > My personal favorite. True to its period -- used to be the office of the
 head of Grand Central hence the name. Older crowd, sexy in its slower pace
 and setting.
 
 
-Apotheke <http://www.yelp.com/biz/apoth%C3%A9ke-new-york-2>
+[Apotheke](http://www.yelp.com/biz/apoth%C3%A9ke-new-york-2)
 
-Manderley Bar
-<https://foursquare.com/v/manderley-bar-at-the-mckittrick-hotel/4d95141361a3a1cdc6e27b42>
+[Manderley Bar](https://foursquare.com/v/manderley-bar-at-the-mckittrick-hotel/4d95141361a3a1cdc6e27b42)
 
 > The bar that is part of the Sleep No More building. Really sexy and usually
 has live performances. Can get crowded when the SNM viewers are arriving and leaving.
 
 ## Venues
-Royal Palms Shuffleboard Club
-<http://www.yelp.com/biz/the-royal-palms-shuffleboard-club-brooklyn>
+[Royal Palms Shuffleboard Club](http://www.yelp.com/biz/the-royal-palms-shuffleboard-club-brooklyn)
 
-Union Pool <http://www.yelp.com/biz/union-pool-brooklyn-2>
+[Union Pool](http://www.yelp.com/biz/union-pool-brooklyn-2)
 
-Barcade <http://www.yelp.com/biz/barcade-brooklyn>
+[Barcade](http://www.yelp.com/biz/barcade-brooklyn)
 
-Kinfolk <http://kinfolklife.com/94-wythe/>
+[Kinfolk](http://kinfolklife.com/94-wythe/)
 
 Caveat: I've only been to Barcade but looked up a few more places that you
 might like. If you're jonesing for a dance party, Williamsburg would be a
@@ -510,7 +512,7 @@ thorough list and description of what is happening (band performances,
 plays, musicals, dance, art exhibits, auctions). Download the New Yorker
 app to get easy on the go access.
 
-## HOTELS
+## Hotels
 Ace Hotel
 
 Seattle-based boutique chain hotel, very hip and hipster, old-school
