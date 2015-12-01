@@ -72,11 +72,10 @@ fluorescent lighting that is another NYC classic for good reason.
 
 
 While I lived in NYC, more and more really amazing Thai restaurants opened
-up. Here's a full list
-<https://www.thrillist.com/eat/new-york/best-thai-food-nyc-restaurants>.
+up. Here's a [full list](https://www.thrillist.com/eat/new-york/best-thai-food-nyc-restaurants).
 One that I never got a chance to try but strongly recommend is Uncle Boons.
 
-Hangawi <http://www.yelp.com/biz/hangawi-new-york>
+[Hangawi](http://www.yelp.com/biz/hangawi-new-york)
 
 > Vegetarian Korean food. In a similar vein to Kajitsu but Korean. Really
 tasty, delicate food. You'll feel more alive and alert after having an
@@ -84,7 +83,7 @@ inspired, invigorating meal. Unique experience, highly recommend trying
 either Kajitsu or Hangawi.
 
 
-Momofuku Ko / Milk / Noodle / Ssam Bar
+[Momofuku Ko / Milk / Noodle / Ssam Bar](http://www.momofuku.com/noodle/default.asp)
 
 > David Chang is the restaurateur behind the Momofuku brand. He also
 publishes Lucky Peach magazine and has an innovative test / molecular
@@ -93,9 +92,7 @@ love his food but worth knowing about and possibly trying. Momofuku Milk is
 the dessert bar and has some interesting stuff. My favorite is the crack
 pie, but another popular choice is the cereal milk ice cream.
 
-http://www.momofuku.com/ <http://www.momofuku.com/noodle/default.asp>
-
-Mission Chinese <http://www.yelp.com/biz/mission-chinese-food-new-york-2>
+[Mission Chinese](http://www.yelp.com/biz/mission-chinese-food-new-york-2)
 
 > Danny Bowien made his name in SF with the original Mission Chinese but I
 feel like he and his hipster restaurants fit in NYC better. Food is good --
@@ -109,34 +106,32 @@ RedFarm
 > An irreverent / kitschy / new Asian take on dim sum. Not too crazy but just
 enough to keep you alert and taste buds alive. Again, high quality,
 delicate, well-balanced flavors in a playful hipster atmosphere. Two
-locations now -- the West Village
-<http://www.yelp.com/biz/redfarm-new-york> location
+locations now -- the [West Village](http://www.yelp.com/biz/redfarm-new-york) location
 was the only one that was open when I was in NYC and would recommend that
 one for atmosphere.
 
 
-Shanghai Cafe <http://www.yelp.com/biz/shanghai-cafe-new-york-4>
+[Shanghai Cafe](http://www.yelp.com/biz/shanghai-cafe-new-york-4)
 
 > For soup dumplings. No frills and would focus on the smaller dishes (not
 the more expensive ones on the back of the menu).
 
 
 ## PASTA
-Osteria Morini <http://www.yelp.com/biz/osteria-morini-new-york>
+[Osteria Morini](http://www.yelp.com/biz/osteria-morini-new-york)
 
 > Pasta is the highlight at this Michael White restaurant. You will know how
 much you've been missing out on when you bite into their pasta. It's
 perfectly al dente and often made in house.
 
 
-Il Buco Alimentari & Vineria
-<http://www.yelp.com/biz/il-buco-alimentari-and-vineria-new-york-2>
+[Il Buco Alimentari & Vineria](http://www.yelp.com/biz/il-buco-alimentari-and-vineria-new-york-2)
 
 > Also has really solid pasta but overall great Italian / New American
 restaurant. Good service and relaxed but tasteful atmosphere.
 
 
-L'Artusi <http://www.yelp.com/biz/l-artusi-new-york>
+[L'Artusi](http://www.yelp.com/biz/l-artusi-new-york)
 
 > Pasta is also a focus at this restaurant. Very popular choice among New
 Yorkers. Morini and Il Buco are my personal favorites but this place is
@@ -144,62 +139,60 @@ also very good. Olive oil cake to finish the meal here is nice. More
 bustling than the other two.
 
 
-## PIZZA (FANCY)
-Rubirosa <http://www.yelp.com/biz/rubirosa-new-york-2>
+## Pizza (Fancy)
+[Rubirosa](http://www.yelp.com/biz/rubirosa-new-york-2)
 
 > MUST GET THE VODKA PIZZA. Once you've had that, you're done. The pasta is
 also ok but focus on the vodka pizza.
 
 
-Keste <http://www.yelp.com/biz/keste-pizza-and-vino-new-york>
+[Keste](http://www.yelp.com/biz/keste-pizza-and-vino-new-york)
 
 > Really good Neapolitan pizza. Can't go wrong with any of the pizzas here.
 
 
-Motorino <http://www.yelp.com/biz/motorino-new-york>
+[Motorino](http://www.yelp.com/biz/motorino-new-york)
 
 > Also good but I prefer Rubirosa's vodka and Keste's pizzas. Roberta's out
 in Brooklyn is also popular but to me it's just more hipster.
 
 
-## NY-STYLE SLICE PIZZA
-Joe's <http://www.yelp.com/biz/joes-pizza-new-york-4>
+## NY-Style Slice Pizza
+[Joe's](http://www.yelp.com/biz/joes-pizza-new-york-4)
 
 > Though Joe's is really good and famous, any corner pizza shop that is
 selling by the slice is likely to have awesome NY-style pizza for cheap.
-Here's a guy
-<http://www.npr.org/books/titles/431650563/slice-harvester-a-memoir-in-pizza#excerpt>
+Here's a [guy](http://www.npr.org/books/titles/431650563/slice-harvester-a-memoir-in-pizza#excerpt)
 who
 took 2 years to try every pizza sold by the slice in NYC and then wrote a
 book and blog about it.
 
 
-## OTHER PIZZA INSTITUTIONS
-Grimaldi's <http://www.grimaldis-pizza.com/home>
+## Other Pizza Institutions
+[Grimaldi's](http://www.grimaldis-pizza.com/home)
 
 > One of the most famous NY pizzerias. Original location is in Brooklyn under
 the bridge.
 
 
-Here's another final verdict on 'za
-<http://gothamist.com/2015/09/17/best_pizza_nyc_final.php> in NYC.
+[Here's another final verdict on 'za in NYC.](http://gothamist.com/2015/09/17/best_pizza_nyc_final.php)
 
-## BRUNCH
-Freeman's <http://www.yelp.com/biz/freemans-new-york-3>
+## Brunch
+[Freeman's](http://www.yelp.com/biz/freemans-new-york-3)
 
 > Uppity, New England cum hipster crowd. Great ambience, best brunch fare
 I've ever had.
 
 
-Shopsin's <http://www.yelp.com/biz/shopsins-new-york>
+[Shopsin's](http://www.yelp.com/biz/shopsins-new-york)
 
 > MUST GO HERE. Crazy menu, crazy food somehow all actually good. No ambience
 in the middle of a market with a few tables. A total experience and NY
 institution.
 
 
-## NEW AMERICAN
-MWells <http://magasinwells.com/>
+## New American
+[MWells](http://magasinwells.com/)
 
 > You MUST go to MWells (either Dinette or Steakhouse). One of my favorite
 restaurant groups -- owners are a husband and wife team half from Queens
@@ -208,44 +201,43 @@ on the adventure and richness of Montreal cuisine. Crazy weird stuff,
 innovative, worth every second getting there, waiting, and eating.
 
 
-ABC Kitchen <http://www.yelp.com/biz/abc-kitchen-new-york>
+[ABC Kitchen](http://www.yelp.com/biz/abc-kitchen-new-york)
 
-## STEAK
-Peter Luger's <http://www.yelp.com/biz/peter-luger-steak-house-brooklyn>
+## Steak
+[Peter Luger's](http://www.yelp.com/biz/peter-luger-steak-house-brooklyn)
 
-Keen's <http://www.yelp.com/biz/keens-steakhouse-new-york>
+[Keen's](http://www.yelp.com/biz/keens-steakhouse-new-york)
 
 Both Peter Luger's and Keen's are NY institutions. Luger's is SO good.
 Keen's is a riot to experience (kitschy decor and blue-blood crowd) and
 also good.
 
 
-## MEXICAN
-Hecho en Dumbo <http://www.yelp.com/biz/hecho-en-dumbo-new-york>
+## Mexican
+[Hecho en Dumbo](http://www.yelp.com/biz/hecho-en-dumbo-new-york)
 
 > Had the bone marrow taco with mom the last time I was there. Really tasty
 and interesting.
 
 
-El Toro Blanco <http://www.yelp.com/biz/el-toro-blanco-new-york>
+[El Toro Blanco](http://www.yelp.com/biz/el-toro-blanco-new-york)
 
 > Was one of my go-tos when I hung out in the West Village.
 
-## BURGERS
+## Burgers
 Shake Shack
 
-> Many locations but I would go to the original
-<http://www.yelp.com/biz/shake-shack-new-york-2> shack in Madison Square
+> Many locations but I would go to the [original](http://www.yelp.com/biz/shake-shack-new-york-2) shack in Madison Square
 Park. Get the shack stack, a concrete (or beer or wine to pair), and
 fries!!!
 
 
-Minetta Tavern <http://www.yelp.com/biz/minetta-tavern-new-york>
+[Minetta Tavern](http://www.yelp.com/biz/minetta-tavern-new-york)
 
 > Great vibe, hard to get in. My favorite fancy burger in NYC.
 
 
-JG Melon <http://www.yelp.com/biz/jg-melon-new-york>
+[JG Melon](http://www.yelp.com/biz/jg-melon-new-york)
 
 > Like Shopsin's a lot of people don't know about JG Melon but it is a NY
 institution and classic. Known for burgers and chili, the first time I
@@ -253,10 +245,11 @@ walked in I thought I had entered a snowy diner filled with New England
 prep school families.
 
 
-## CHEAP EATS
+## Cheap Eats
 
-*East Village / Lower East Side area*Crif Dogs
-<http://www.yelp.com/biz/crif-dogs-new-york>
+*East Village / Lower East Side area*
+
+[Crif Dogs](http://www.yelp.com/biz/crif-dogs-new-york)
 
 > Creative hot dogs, also houses the phone booth entrance to the faux
 speakeasy PDT (Please Don't Tell), which I strongly recommend.
