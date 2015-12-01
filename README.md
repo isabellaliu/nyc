@@ -16,8 +16,8 @@ satisfying.
 
 
 Honestly, NYC is an amazing place to get ramen. There are so many chefs and
-restaurants who are just killing it at the ramen game. Here's a more extensive
-list <http://www.grubstreet.com/2015/07/best-new-york-ramen.html> but the
+restaurants who are just killing it at the ramen game. [Here's a more extensive
+list](http://www.grubstreet.com/2015/07/best-new-york-ramen.html) but the
 two mentioned above are NY classics for a reason. Most of these places
 (including Ippudo and Totto) may have long waits so try to go in the middle
 of the day instead of at peak dinning hours.
@@ -458,7 +458,7 @@ Apple store on 5th Ave and Central Park South (open 24/7)
 The Strand Bookstore
 Opening Ceremony (the uber hip boutique chain where I interned for a summer)
 Steven Alan (known for their plaid shirts, a staple brand for hipsters)
-Story <http://thisisstory.com/> (the whole store changes periodically
+[Story](http://thisisstory.com/) (the whole store changes periodically
 according to themes)
 Brooklyn Flea Market (a MUST)
 
@@ -499,12 +499,10 @@ has live performances. Can get crowded when the SNM viewers are arriving and lea
 
 Caveat: I've only been to Barcade but looked up a few more places that you
 might like. If you're jonesing for a dance party, Williamsburg would be a
-ton to check out. Here's a good list
-<http://www.timeout.com/newyork/nightlife/best-nightlife-venues-in-williamsburg>
+ton to check out. [Here's a good list](http://www.timeout.com/newyork/nightlife/best-nightlife-venues-in-williamsburg)
 of where to go there.
 
-If you want beer, here are some biergartens and bars
-<http://ny.eater.com/maps/best-outdoor-bar-beer-gardens-new-york-city>.
+If you want beer, [here are some biergartens and bars](http://ny.eater.com/maps/best-outdoor-bar-beer-gardens-new-york-city).
 
 I would check out what live music shows are going on while you're there. I
 don't love musicals, but New Yorker Magazine (as well as NYMag) will have a
