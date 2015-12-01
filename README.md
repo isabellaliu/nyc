@@ -342,7 +342,7 @@ cupcake shop in NYC.
 > Because who wants cake when they can have pie!
 
 
-## FRENCH PASTRIES
+## French Pastries
 
 [Dominique Ansel](http://www.yelp.com/biz/dominique-ansel-bakery-new-york)
 
@@ -357,18 +357,18 @@ bad for a low-key weekend breakfast/brunch.
 
 
 
-## MUSUEMS
-Metropolitan of Museum of Art
-The Guggenheim Museum
-*PS1* (the contemporary arm of the MOMA located in Long Island City -- my
+## Museums
+* Metropolitan of Museum of Art
+* The Guggenheim Museum
+* *PS1* (the contemporary arm of the MOMA located in Long Island City -- my
 ultimate favorite! The space it inhabits is an old public school and their
 exhibits are super on point.)
-The Whitney
-New Museum
-American Museum of Natural History
-Intrepid Sea, Air, and Space Museum
+* The Whitney
+* New Museum
+* American Museum of Natural History
+* Intrepid Sea, Air, and Space Museum
 
-## PLACES
+## Places
 The High Line
 
 > MUST GO. One of the largest outdoor urban spaces and parks. A perfect
@@ -439,34 +439,37 @@ UES (60s-70s) - conservative wealthy white people
 
 UWS - liberal Jewish families
 
-## TOURISTY
-Rockefeller Center (Check out ice skating rink and Christmas tree)
-Time Square (I actually love Time Square)
-Chinatown and Little Italy
-Empire State Building (I also love this one)
-Statue of Liberty
+## Touristy
+* Rockefeller Center (Check out ice skating rink and Christmas tree)
+* Time Square (I actually love Time Square)
+* Chinatown and Little Italy
+* Empire State Building (I also love this one)
+* Statue of Liberty
 
 
-*OTHER AREAS*
-Coney Island, Rockaway Beach, Long Island City, Williamsburg
+### Other Areas
+* Coney Island
+* Rockaway Beach
+* Long Island City
+* Williamsburg
 
 
-## SHOPPING
-Barneys, Bergdorf Goodman, Saks Fifth, Bloomingdales, and Macys (all
+## Shopping
+* Barneys, Bergdorf Goodman, Saks Fifth, Bloomingdales, and Macys (all
 started in NYC and can visit their flagship stores)
-Apple store on 5th Ave and Central Park South (open 24/7)
-The Strand Bookstore
-Opening Ceremony (the uber hip boutique chain where I interned for a summer)
-Steven Alan (known for their plaid shirts, a staple brand for hipsters)
-[Story](http://thisisstory.com/) (the whole store changes periodically
+* Apple store on 5th Ave and Central Park South (open 24/7)
+* The Strand Bookstore
+* Opening Ceremony (the uber hip boutique chain where I interned for a summer)
+* Steven Alan (known for their plaid shirts, a staple brand for hipsters)
+* [Story](http://thisisstory.com/) (the whole store changes periodically
 according to themes)
-Brooklyn Flea Market (a MUST)
+* Brooklyn Flea Market (a MUST)
 
 
 
-## NIGHTLIFE
+## Nightlife
 
-*Speakeasies*
+### Speakeasies
 
 [PDT (Please Don't Tell)](http://www.yelp.com/biz/please-dont-tell-new-york-2)
 
@@ -488,7 +491,7 @@ and setting.
 > The bar that is part of the Sleep No More building. Really sexy and usually
 has live performances. Can get crowded when the SNM viewers are arriving and leaving.
 
-## Venues
+### Venues
 [Royal Palms Shuffleboard Club](http://www.yelp.com/biz/the-royal-palms-shuffleboard-club-brooklyn)
 
 [Union Pool](http://www.yelp.com/biz/union-pool-brooklyn-2)
@@ -513,7 +516,7 @@ app to get easy on the go access.
 ## Hotels
 Ace Hotel
 
-Seattle-based boutique chain hotel, very hip and hipster, old-school
+> Seattle-based boutique chain hotel, very hip and hipster, old-school
 feeling and design and home to Breslin Bar and John Dory restaurants. Other
 boutiques to know of include Nomad, Gramercy Park Hotel, the Jane Hotel,
 Wythe Hotel (in Brooklyn).
@@ -521,7 +524,7 @@ Wythe Hotel (in Brooklyn).
 
 Standard Hotel
 
-Scene-y hotel with their Boom Boom Room on the top and Le Bain bar
+> Scene-y hotel with their Boom Boom Room on the top and Le Bain bar
 downstairs.
 
 
